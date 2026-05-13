@@ -1,2 +1,3 @@
 # CrackSoftware
-Any Crack Software download
+- Cracking Every Apps We Use
+
